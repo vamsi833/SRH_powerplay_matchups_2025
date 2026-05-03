@@ -1,4 +1,4 @@
-![SRH Powerplay Analysis](./IMG-20260503-WA...)
+![SRH Powerplay Analysis](IMG-20260503-WA0000.jpg)
 # SRH Powerplay: Head Should Face Spin, Not Abhishek
 
 **Insight**: Head 160 SR vs Spin | Abhishek 40 SR vs Spin  
